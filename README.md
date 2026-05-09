@@ -17,3 +17,6 @@ He often creates chaos by tagging the village with his graffiti and causing mino
 But in *Naruto: Shippuden* The main cast Grows in different directions due to the Major conflict that happened back in
 *Naruto* The main charater "Naruto" is more mature and deals with situations more rationally than his younger counterpart.
 
+1. i love naruto
+2. good fights
+3. important lessons along the way
